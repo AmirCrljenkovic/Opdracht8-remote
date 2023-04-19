@@ -1,2 +1,2 @@
-# weetje 1
-ik ben een betrouwbaar persoon
+# weetje 2
+ik ben een aardig persoon
